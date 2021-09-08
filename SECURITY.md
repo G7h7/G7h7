@@ -15,6 +15,8 @@ currently being supported with security updates.
 ## Github account HACKED and Hijacked; most likel
 ky by local GIT usr.
 
+Local GIT usr attl G7h7- 137, CE 614. 3.2-4
+
 (Note: My fault, starting wrong end-to-end (if that is plausable. lol.. Anyway, weakness for beginners..
 Help just to clear the air would be appriciated)
 
